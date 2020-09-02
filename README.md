@@ -1,2 +1,0 @@
-# krithik
-photography editing 
